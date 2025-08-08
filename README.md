@@ -3,12 +3,10 @@
 
 Link: https://www.betvictor.com
 
-[www.betvictor.com](www.betvictor.com)
+BVA https://bva.onelink.me/b1bW/3wpxjzzb
 
-[betvictor.com](betvictor.com)
+WH https://williamhill.onelink.me/W4uy/91077658
 
-[btn-live](https://betano.co.uk)
+BY https://biying.onelink.me/eTy7/cba7295c
 
-[btn-kkttest](https://kokot.betano.co.uk)
-
-[btn-uat](https://betano.aldn-uat.bv-tools-test.com)
+[www.betvictor.com](https://www.betvictor.com)
